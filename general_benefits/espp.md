@@ -1,0 +1,1 @@
+if offered, do your best to max out your employee stock purchase program. unless interest rates on savings accounts are greater than 5%, it is generally guaranteed free money even after the extra taxes.
