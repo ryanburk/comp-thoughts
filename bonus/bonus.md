@@ -5,3 +5,6 @@ variable:
 - your control based on results
   - how is measurement happening, when
 - company control (revenue, customers, etc)
+
+
+links to other valuable sources on the topic:
